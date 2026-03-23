@@ -149,6 +149,6 @@ Hover over visuals for detailed tooltips
 
 RABEEH K M
 
-🔗 [LinkedIn](linkedin.com/in/rabeeh-km)
+🔗 [LinkedIn](http://www.linkedin.com/in/rabeeh-km-49b280214)
 
 💻 [GitHub](https://github.com/Rabeehkm6)
