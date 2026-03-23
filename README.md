@@ -147,8 +147,8 @@ Hover over visuals for detailed tooltips
 
 
 
-Ashik Roshan C P
+RABEEH K M
 
-🔗 [LinkedIn](https://www.linkedin.com/in/ashik-roshan-c-p-64985b227)
+🔗 [LinkedIn](linkedin.com/in/rabeeh-km)
 
-💻 [GitHub](https://github.com/roshanashik)
+💻 [GitHub](https://github.com/Rabeehkm6)
